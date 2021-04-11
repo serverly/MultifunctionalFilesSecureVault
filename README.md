@@ -1,2 +1,2 @@
 # MFSV.It-s-mine.
-MultifunctionaiFilesSecureVault
+MultifunctionalFilesSecureVault
