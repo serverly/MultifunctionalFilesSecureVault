@@ -17,5 +17,3 @@ That's all.
 
 Author: Hairuo Mao from Hunan China
 Email: 312587442@qq.com
-
-                                                                             Thanks for reading!
