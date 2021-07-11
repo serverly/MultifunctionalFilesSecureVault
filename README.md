@@ -12,5 +12,5 @@ When you find me activating again, I believe I will code my new project in some 
 I hope that day can come soon but I couldn't ensure I will continue my dream energetically like today, maybe due to money, energy, healthy, and else.
 I won't leave forever, this can be ensured.
 
-2021.7.11 MFSV update to New 2.5.0.0,the birthday of me,also MFSV's
+2021.7.11 MFSV update to New2.5.0.0,the birthday of me,also MFSV's.
 That's all.
